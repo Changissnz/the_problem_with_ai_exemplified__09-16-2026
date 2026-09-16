@@ -61,4 +61,27 @@ society for the better, for the worse, something more...something less...
 The invisible hand of economics is doing the answering. People are feeling it, especially if they do not live in complete squalor or are in a wartorn 
 country, allowing them time and freeing up their emotions to think about how A.I. would work out for them, maybe be a little ambitious in this. 
 
+When a person willingly relinquishes their free will for their country or family, that would be genuine sacrifice and altruistic for those causes. When 
+the explanation becomes "A.I. A.I." for every matter. Transportation issues. "It's A.I." The Russians. "It's A.I." Chinese competition. "It's A.I." 
+Chinese allies. "They make our iPhones and electronics, and it's A.I." 
+
+The conformist that I am, I have to also chime in "A.I. A.I." before moving on to the subtopics of this. 
+
+------------------------------------------------------ 
+
+**People are supposed to defer to A.I. for the things they used to specialize in, and also for common tasks.** Remember that one girl way back then, when 
+you were younger and your crushes were a lot more innocent? And then you were going to ask her out, but before that, she had sex with around 7-8 guys, so 
+you DEFERRED on her, choosing not to be the 8th or 9th — not because you could have been her first — but because you could never have been her last without 
+murdering her.
+
+And that about sums up what A.I. capitalism has been. A do-gooder would not yearn for the A.I. IPOs because they expect thousands, millions upon millions of 
+US Dollars, Renminbi, Yen, and Rupees of India and Russia to shower on them, thus liberating them from their hardships, whether it be squalor or the paling and 
+shrinking benefits of lower-class bourgeoisie — a do-gooder would year for the A.I. IPOs because of purely good feelings and emotions they have, that the A.I. 
+IPOs are to be better, a prediction based entirely on their good feelings and emotions because to know anything specific would amount to being an insider, and 
+most insiders are... NOT good, in reference to the collectivistic public. 
+
+
+
+
+
 
