@@ -1,4 +1,5 @@
 # The Problem with AI Exemplified: 09-16-2026
+## written by Richard Pham 
 
 The last in this series. 
 -----------------------------------------------
