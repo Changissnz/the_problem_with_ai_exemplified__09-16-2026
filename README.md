@@ -82,6 +82,11 @@ most insiders are... NOT good, in reference to the collectivistic public.
 
 > All the money got circulated around, s* and spat on, washed with bleach to remove the blood, and still in circulation...could that be the pork barrel money?
 
+**Forget liberation in this A.I. game. It's about the next phase.** The future is far ahead and filled with possibilities, but before this grandiose end so 
+unreachable in this present life, there are questions and troubles daily, insecurities fostered waiting to be unleashed, expectations from one to another not 
+formally declared but expected to be committed to, in the name of honor and loyalty. 
+
+
 
 
 
