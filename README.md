@@ -42,7 +42,7 @@ Take a look at some of these screenshots below.
 ![image info](Screenshot%202026-09-16%20000519.png)
 
 This is supposed to be the idea for human representation on effective A.I. egalitarianism. Everyone knows how "egalitarianism" goes...
-Some people asked for independent agency. And this is how the world responds, with this f* b*s*. 
+Some people asked for independent agency. And this is how the world responds, with this f* s*. 
 
 ---------------------------------------------------
 
