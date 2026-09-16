@@ -125,7 +125,7 @@ The Lesser Chinks think there's big money in this A.I. thing that can come their
 
 ------------------------------------------------------------------------------
 
-Now that I have mentioned some of high-society's agents with their views, I am next going to ask some of these commercial LLMs difficult questions on corporatistism, 
+Now that I have mentioned some of high-society's agents with their views, I am next going to ask some of these commercial LLMs difficult questions on corporatism, 
 how corporatistic A.I. is, to demonstrate its intelligence in emotional processing and socioeconomics. 
 
 ![image info](Screenshot%202026-09-16%20011644.png)
