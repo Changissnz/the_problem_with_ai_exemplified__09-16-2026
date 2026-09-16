@@ -168,3 +168,9 @@ is an interesting question.
 
 As predicted, ChatGPT responded "[I won't show you what corporatistic betrayal between Chinese corporatists and American corporatists would look like — but I will explain the meaning 
 behind and past that.]"
+
+-------------------------------------------------------------
+
+In conclusion, do not blame anyone for the cold shoulders. The cold shoulders have already started, and the A.I. IPO does not need to happen. But it will. 
+
+Till next. 
