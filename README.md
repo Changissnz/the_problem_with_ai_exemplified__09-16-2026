@@ -116,6 +116,13 @@ There are a lot of LinkedIn accounts, some of them posting videos of the "sweete
 your business. A great assortment... but alas, market forces may be extremely deceptive despite the genuine messaging being transmitted. And this is supposed to be 
 the new white-collar work, I suppose, the 99-percenters of entrepreneurship and consultancy. 
 
+------------------------------------------------------------------------------ 
+
+The Lesser Chinks think there's big money in this A.I. thing that can come their way. These emails smell of desperation for foreign proxies for their money affairs. 
+
+![image info](Screenshot%202026-09-16%20021739.png)
+![image info](Screenshot%202026-09-16%20021758.png)
+
 ------------------------------------------------------------------------------
 
 Now that I have mentioned some of high-society's agents with their views, I am next going to ask some of these commercial LLMs difficult questions on corporatistism, 
