@@ -162,5 +162,5 @@ is an interesting question.
 
 ![image info](Screenshot%202026-09-16%20014646.png)
 
-As predicted, ChatGPT responded "[I won't show you what corporatistic betrayal between Chinese corporatist and American corporatists would look like — but I will explain the meaning 
+As predicted, ChatGPT responded "[I won't show you what corporatistic betrayal between Chinese corporatists and American corporatists would look like — but I will explain the meaning 
 behind and past that.]"
