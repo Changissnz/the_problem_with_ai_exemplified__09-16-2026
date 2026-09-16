@@ -148,5 +148,10 @@ And then I asked ChatGPT if it would choose corporatism under certain nationalis
 ChatGPT was very smart in answering. It immediately said "[nah, b*. I'm not going to answer if I'm pro-Chinese or anti-Chinese. If corporatism is the best way to go, then I 
 will avoid answering because of multinational trade agreements, guardrails]". 
 
+Then I asked ChatGPT what principles Public Relations press releases from Chinese Corporatists would look like, and likewise for American Corporatists. 
+
+![image info](Screenshot%202026-09-16%20014200.png)
+![image info](Screenshot%202026-09-16%20014215.png)
+![image info](Screenshot%202026-09-16%20014228.png)
 
 
