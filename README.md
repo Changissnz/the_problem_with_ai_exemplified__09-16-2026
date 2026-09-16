@@ -157,6 +157,10 @@ Then I asked ChatGPT what principles Public Relations press releases from Chines
 
 Bullet points. Very efficient answers. Clear and understandable sentences. Sounds like a game plan! 
 
+I asked Claude a question on the socio-economic zeitgeist surrounding A.I. Turns out, it is quite the politically-aware pundit. 
+
+![image info](Screenshot%202026-09-16%20015947.png)
+
 And finally, check this out. You know, with corporatism and A.I., loyalties and royalties and allegiances, honors and obligations and s* really get put to the test. So this 
 is an interesting question. 
 
