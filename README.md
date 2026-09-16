@@ -154,4 +154,12 @@ Then I asked ChatGPT what principles Public Relations press releases from Chines
 ![image info](Screenshot%202026-09-16%20014215.png)
 ![image info](Screenshot%202026-09-16%20014228.png)
 
+Bullet points. Very efficient answers. Clear and understandable sentences. Sounds like a game plan! 
 
+And finally, check this out. You know, with corporatism and A.I., loyalties and royalties and allegiances, honors and obligations and s* really get put to the test. So this 
+is an interesting question. 
+
+![image info](Screenshot%202026-09-16%20014646.png)
+
+As predicted, ChatGPT responded "[I won't show you what corporatistic betrayal between Chinese corporatist and American corporatists would look like — but I will explain the meaning 
+behind and past that.]"
