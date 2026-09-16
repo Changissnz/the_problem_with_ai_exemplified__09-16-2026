@@ -80,6 +80,10 @@ shrinking benefits of lower-class bourgeoisie — a do-gooder would year for the
 IPOs are to be better, a prediction based entirely on their good feelings and emotions because to know anything specific would amount to being an insider, and 
 most insiders are... NOT good, in reference to the collectivistic public. 
 
+> All the money got circulated around, s* and spat on, washed with bleach to remove the blood, and still in circulation...could that be the pork barrel money?
+
+
+
 
 
 
