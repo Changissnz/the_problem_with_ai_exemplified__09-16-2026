@@ -111,9 +111,26 @@ not always be "nice", or whatever.
 ![image info](Screenshot%202026-09-16%20010953.png)
 ![image info](Screenshot%202026-09-16%20011013.png)
 
+There are a lot of LinkedIn accounts, some of them posting videos of the "sweetest and most gorgeous girls in the entire world", talking about A.I. and how to build 
+your business. A great assortment... but alas, market forces may be extremely deceptive despite the genuine messaging being transmitted. And this is supposed to be 
+the new white-collar work, I suppose, the 99-percenters of entrepreneurship and consultancy. 
 
+------------------------------------------------------------------------------
 
+Now that I have mentioned some of the agents of high-society with their views, I am next going to ask some of these commercial LLMs difficult questions on corporatistism, 
+how corporatistic A.I. is, to demonstrate its intelligence in emotional processing and socioeconomics. 
 
+![image info](Screenshot%202026-09-16%20011644.png)
+![image info](Screenshot%202026-09-16%20011702.png)
+![image info](Screenshot%202026-09-16%20011716.png)
 
+Notice how Claude refuses to state that A.I. economics is clear clear example of corporatism. Instead, its statements, in re-iteration: 
+> In both the US and China, frontier AI development is concentrated among a small number of large, well-capitalized entities that work
+> closely with their respective governments — through funding, export controls, procurement contracts, and (in China's case) more direct
+> state guidance. That does look corporatist in the classic sense: economic activity organized around a handful of officially-recognized
+> major players who negotiate directly with the state, rather than a diffuse market of competing firms.
+
+To translate in more English, Claude is saying that "no, it's not officially corporatistic although it seems corporatistic because that's how life works, I guess...but I'm 
+providing you with rational response backed by facts." 
 
 
