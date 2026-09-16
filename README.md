@@ -76,17 +76,31 @@ murdering her.
 
 And that about sums up what A.I. capitalism has been. A do-gooder would not yearn for the A.I. IPOs because they expect thousands, millions upon millions of 
 US Dollars, Renminbi, Yen, and Rupees of India and Russia to shower on them, thus liberating them from their hardships, whether it be squalor or the paling and 
-shrinking benefits of lower-class bourgeoisie — a do-gooder would year for the A.I. IPOs because of purely good feelings and emotions they have, that the A.I. 
+shrinking benefits of lower-class bourgeoisie — a do-gooder would yearn for the A.I. IPOs because of purely good feelings and emotions they have, that the A.I. 
 IPOs are to be better, a prediction based entirely on their good feelings and emotions because to know anything specific would amount to being an insider, and 
 most insiders are... NOT good, in reference to the collectivistic public. 
 
 > All the money got circulated around, s* and spat on, washed with bleach to remove the blood, and still in circulation...could that be the pork barrel money?
 
+**There is no choice without independent agency.** Of course, if that statement were given to a political shill, depending on the country where the exchange 
+takes place and their mood, maybe conflict happens. Maybe! 
+
 **Forget liberation in this A.I. game. It's about the next phase.** The future is far ahead and filled with possibilities, but before this grandiose end so 
 unreachable in this present life, there are questions and troubles daily, insecurities fostered waiting to be unleashed, expectations from one to another not 
 formally declared but expected to be committed to, in the name of honor and loyalty. 
 
+**The LinkedIn accounts on my feed.** This social networking site has illuminated me on the extent of toxic positivity, insincere marketing, false wisdom, and 
+skepticism that bounces between controlled anger and scorn. I am compelled to provide some examples. The first one. An account with the name "Alvin Foo". 
 
+![image info](Screenshot%202026-09-16%20005410.png)
+![image info](Screenshot%202026-09-16%20005443.png)
+![image info](Screenshot%202026-09-16%20005501.png)
+![image info](Screenshot%202026-09-16%20005520.png)
+![image info](Screenshot%202026-09-16%20005546.png)
+
+This f* guy is about the most positive guy on my LinkedIn feed now. His coverage is a blend of economics, marketing, and a little wisdom here and there. Very 
+energetic. Never responds to any commenters with bad things. Knows how to hide his emotions, keeps things cordial, educational, and in the spirit of "it is all 
+good, everything is just fine and dandy and I'm just being an informative person here with a great attitude"... 
 
 
 
