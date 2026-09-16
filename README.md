@@ -12,8 +12,8 @@ This about sums up the best that life in a certain part of the "developed world"
 and also...undeserving to be anywhere near the nobles, who apparently have all the A.I. money now (I might need to add in 
 junk news articles to support this claim). 
 
-A lot of people can't earn any money in computer work anymore. Welcome to one of many miserable situations going on, and I 
-can't say it's entirely because of artificial intelligence developments. 
+A lot of people can't earn any money in computer work anymore. Welcome to one of many miserable situations going on nowadays, 
+and I can't say it's entirely because of artificial intelligence developments. 
 
 ------------------------------------------------ 
 
@@ -35,3 +35,30 @@ This one, I believe, will become greatly evident after the A.I. IPOs.
 Well, enough of game theory and Gothic depression. This last article is about human agency. 
 
 Take a look at some of these screenshots below. 
+
+![image info](Screenshot%202026-09-15%20174243.png)
+![image info](Screenshot%202026-09-15%20183622.png)
+![image info](Screenshot%202026-09-16%20000422.png)
+![image info](Screenshot%202026-09-16%20000519.png)
+
+This is supposed to be the idea for human representation on effective A.I. egalitarianism. Everyone knows how "egalitarianism" goes...
+Some people asked for independent agency. And this is how the world responds, with this f* b*s*. 
+
+---------------------------------------------------
+
+A.I. poses questions on what human beings are supposed to do with themselves if they cannot make a living from subsistence farming due 
+to living in such an advanced civilization, or clerical work because they're not high enough to be chief yet are educated enough to practice 
+ethical judgment and educated technique, having spent years in college, years. 
+
+What is human agency? Is it a:
+- task that a person is supposed to get perfect at,
+- free will (oh, philosophy, so much philosophy to think and write about),
+- getting whatever or whoever you want?
+
+Good question, right? With artificial intelligence, there were a plethora of questions on what it would to the workforce, how it would transform 
+society for the better, for the worse, something more...something less...
+
+
+
+
+
