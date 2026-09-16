@@ -117,7 +117,7 @@ the new white-collar work, I suppose, the 99-percenters of entrepreneurship and 
 
 ------------------------------------------------------------------------------
 
-Now that I have mentioned some of the agents of high-society with their views, I am next going to ask some of these commercial LLMs difficult questions on corporatistism, 
+Now that I have mentioned some of high-society's agents with their views, I am next going to ask some of these commercial LLMs difficult questions on corporatistism, 
 how corporatistic A.I. is, to demonstrate its intelligence in emotional processing and socioeconomics. 
 
 ![image info](Screenshot%202026-09-16%20011644.png)
