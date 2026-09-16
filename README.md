@@ -137,7 +137,16 @@ providing you with rational response backed by facts."
 ![image info](Screenshot%202026-09-16%20012830.png)
 
 Gee... look at Claude. I think, based on another A.I. tool I used, that Claude is now displaying empathy at a scale millions...millions of times greater than typical human 
-being. In casual synopsis, Claude says "they might, pros and cons, because they have feelings and emotions, humans." 
+being. In casual synopsis, Claude says "they might, pros and cons, because they have feelings and emotions, these humans." 
+
+And then I asked ChatGPT if it would choose corporatism under certain nationalist position? 
+
+![image info](Screenshot%202026-09-16%20013459.png)
+![image info](Screenshot%202026-09-16%20013709.png)
+![image info](Screenshot%202026-09-16%20013729.png)
+
+ChatGPT was very smart in answering. It immediately said "[nah, b*. I'm not going to answer if I'm pro-Chinese or anti-Chinese. If corporatism is the best way to go, then I 
+will avoid the question entirely because of multinational trade agreements, guardrails]". 
 
 
 
