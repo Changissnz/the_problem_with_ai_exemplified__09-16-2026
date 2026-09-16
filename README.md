@@ -47,7 +47,7 @@ Some people asked for independent agency. And this is how the world responds, wi
 ---------------------------------------------------
 
 A.I. poses questions on what human beings are supposed to do with themselves if they cannot make a living from subsistence farming due 
-to living in such an advanced civilization, or clerical work because they're not high enough to be chief yet are educated enough to practice 
+to living in such an advanced civilization, or clerical work because they're not high enough to be chief but are educated enough to practice 
 ethical judgment and educated technique, having spent years in college, years. 
 
 What is human agency? Is it a:
@@ -55,10 +55,10 @@ What is human agency? Is it a:
 - free will (oh, philosophy, so much philosophy to think and write about),
 - getting whatever or whoever you want?
 
-Good question, right? With artificial intelligence, there were a plethora of questions on what it would to the workforce, how it would transform 
+Good question, right? With artificial intelligence, there were a plethora of questions on what it would do to the workforce, how it would transform 
 society for the better, for the worse, something more...something less...
 
-
-
+The invisible hand of economics is doing the answering. People are feeling it, especially if they do not live in complete squalor or are in a wartorn 
+country, allowing them time and freeing up their emotions to think about how A.I. would work out for them, maybe be a little ambitious in this. 
 
 
