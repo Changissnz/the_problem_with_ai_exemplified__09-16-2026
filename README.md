@@ -178,6 +178,6 @@ behind and past that.]"
 
 -------------------------------------------------------------
 
-In conclusion, do not blame anyone for the cold shoulders. The cold shoulders have already started, and the A.I. IPO does not need to happen. But it will. 
+In conclusion, do not blame anyone for the cold shoulders. The cold shoulders have already started, and the A.I. IPOs do not need to happen. But they will. 
 
 Till next. 
