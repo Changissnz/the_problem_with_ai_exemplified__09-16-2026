@@ -102,6 +102,15 @@ This f* guy is about the most positive guy on my LinkedIn feed now. His coverage
 energetic. Never responds to any commenters with bad things. Knows how to hide his emotions, keeps things cordial, educational, and in the spirit of "it is all 
 good, everything is just fine and dandy and I'm just being an informative person here with a great attitude"... 
 
+And then there's this guy, by the name of "Peter Ruse". I thought he was humorous about 4-6 months back, when he pointed out how commercial LLMs love the em-dash: 
+it's not this — it's that. I certainly wouldn't want to replace him. My personality wouldn't fit. It's the kind of humor that lets some people know it's ok to 
+not always be "nice", or whatever. 
+
+![image info](Screenshot%202026-09-16%20010744.png)
+![image info](Screenshot%202026-09-16%20010911.png)
+![image info](Screenshot%202026-09-16%20010953.png)
+![image info](Screenshot%202026-09-16%20011013.png)
+
 
 
 
