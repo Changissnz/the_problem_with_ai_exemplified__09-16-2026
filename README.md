@@ -71,7 +71,7 @@ The conformist that I am, I have to also chime in "A.I. A.I." before moving on t
 
 **People are supposed to defer to A.I. for the things they used to specialize in, and also for common tasks.** Remember that one girl way back then, when 
 you were younger and your crushes were a lot more innocent? And then you were going to ask her out, but before that, she had sex with around 7-8 guys, so 
-you DEFERRED on her, choosing not to be the 8th or 9th — not because you could have been her first — but because you could never have been her last without 
+you DEFERRED on her, choosing not to be the 8th or 9th — not because you couldn't have been her first — but because you could never have been her last without 
 murdering her.
 
 And that about sums up what A.I. capitalism has been. A do-gooder would not yearn for the A.I. IPOs because they expect thousands, millions upon millions of 
